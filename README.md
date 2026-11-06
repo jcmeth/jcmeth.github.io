@@ -1,1 +1,0 @@
-# jcmeth.github.io
